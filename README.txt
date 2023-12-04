@@ -1,0 +1,3 @@
+Thank's for using my script...
+Contact me if you need special work :p
+Telegram : https://t.me/j33h4n
